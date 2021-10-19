@@ -1,0 +1,1 @@
+Li de boas e não foi necessário registrar nada.
